@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **sarang1221@gmail.com**
 
-- 📄 My Resume [https://drive.google.com/file/d/1WlxLkivnuMQNYNz2ymIMBtIg96_ZKsCA/view](https://drive.google.com/file/d/1WlxLkivnuMQNYNz2ymIMBtIg96_ZKsCA/view)
+- 📄 My Resume [https://drive.google.com/file/d/1WlxLkivnuMQNYNz2ymIMBtIg96_ZKsCA/view](https://drive.google.com/file/d/1YKS59kWMdS8bp_ltSzQEtY7WMc75LP0P/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
